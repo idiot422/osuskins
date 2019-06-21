@@ -11,3 +11,5 @@ I'll add screenshots when I'm not lazy...
 # <a href="https://idiot422.s-ul.eu/XKUJualg">Amore</a>
 
 # <a href="https://idiot422.s-ul.eu/FZSM4vQj">Anarchy</a>
+
+# <a href="https://mizaruyea.s-ul.eu/CO9HlFm8">Amaestric</a>
