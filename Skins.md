@@ -19,3 +19,9 @@ If a skin link is broken please inform me on Discord (idiot#5997)
 
 # <a href="https://idiot422.s-ul.eu/OGEFamoQ">azr8</a>
 # <img src="https://i.imgur.com/CZQPCUf.jpg"></img>
+
+# <a href="https://idiot422.s-ul.eu/rbpKjKBs">FlyingTuna x Shigetora</a>
+# <img src="https://i.imgur.com/tALUlbV.png"></img>
+
+# <a href="https://idiot422.s-ul.eu/oibMuELj">Chitanda x RyuK</a>
+# <img src="https://i.imgur.com/nkUzZyK.png"></img>
